@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lailamuyasaroh
+- 👀 I’m interested in clinical pharmacy
+- 🌱 I’m currently learning pharmacy
+- 💞️ I’m from Indonesia
